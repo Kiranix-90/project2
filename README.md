@@ -1,2 +1,2 @@
 kiran
-gec hassan karnataka 
+gec hassan 
